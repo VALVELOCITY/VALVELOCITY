@@ -8,4 +8,4 @@
 <img src="https://komarev.com/ghpvc/?username=puppetgentleman&color=b48a96&style=flat-square&label=cuz_it's_fucking_delicious_♡_" />
 </p>
 
-<p align="center"> <b> int / c+h / frqs always ok. ooooOOOoo u wanna talk 2 me so bad rn!! </b> ಄಄಄ </p>
+<p align="center"> <b> int / c+h / frqs always ok. ooooOOOoo u wanna talk 2 me so bad. </b> ಄಄಄ </p>
